@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Nokado4814
+- 🌱 I’m currently learning to programm, so don't expect to much as of now
